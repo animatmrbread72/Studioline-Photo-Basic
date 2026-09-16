@@ -223,4 +223,4 @@ StudioLine Photo Basic is offered as a full free version with all features and u
 Start managing your photos like a pro with **StudioLine Photo Basic**. Download now and unlock the full potential of your digital images!
 
 ---
-**Last updated:** 2026-09-15 21:58:40 UTC
+**Last updated:** 2026-09-16 00:09:17 UTC
